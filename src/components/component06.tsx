@@ -1,2 +1,2 @@
 ppppp ppppp ppppp ppppp ppppp
-ooooo ooooo ooooo ooooo ooooo
+OOOOO OOOOO OOOOO OOOOO OOOOO
